@@ -4,4 +4,6 @@ In the [research](https://raspad.network/home/pyat-proektov-budushhego-razgovory
 
 Many new channels, prominent networks, and groups have emerged after russia's full-scale invasion of Ukraine. These groups develop ideas of decolonization, federalization, and regional separatism. These ideas are not always interconnected and do not always stem from one another. We think it is essential to understand what is happening at the margins of the interactions between these narratives and how and on what grounds these groups interact.
 
+![photo1700738099.jpeg](images/photo1700738099.jpeg)
+
 
